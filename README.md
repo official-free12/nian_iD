@@ -1,0 +1,6 @@
+# 24年USDT理财基金投资理财有币理财BSC理财，分销团队极差小区业绩分币系统TRX理财
+
+具体看演示站。一切以演示站为主<br>购买前需要了解的一些事<br>1、源码属于虚拟产品，购买前，请认真测试演示站，本店保证发货源码与测试完全一致，若非此项，本店谢绝退款！<br>请勿用于违法经营，我司不参与运营，如有违法运营自行承担！<br>付款、购买代表同意以上条款。<br>我方如果发现买家使用此程序用于违法应用，将提停止一切服务并且举报<br>且行且珍惜，请勿适用于违法<br>前台网址<br>example.com<br>1380000000112345678支付密码123123<br>也可以自己注册<br>example.com/index/login/register/yqm/UWZMB21T<br>后台地址联系客服获取QQ9067676<br>模式介绍<br>三大战略：<br>1，消费增值<br>2，ENT娱乐分倍增<br>3，资本红利<br>💎固定收益<br>一，购买以下娱乐包，给予等值的娱乐卡：<br>example.com%<br>example.com%<br>example.com%<br>40000元1%<br>赠送2倍娱乐积分2倍出局<br>（其中购买额的5%进入ENT的娱乐积分，进行拉升）<br>💎增值收益<br>一，分享收益：一层15%<br>二，代理收益：购买即T0，无代理收益<br>T14%小市场3万<br>T28%小市场10万<br>T312%小市场50万<br>T416%小市场300万<br>T520%小市场1000万<br>T624%小市场3000万<br>三，经理人收益：<br>T1至T6紧缩<br>1层收益：50%<br>2层收益：25%<br>3层收益：12%<br>4层收益：6%<br>5层收益：3%<br>6层收益：1%<br>四，股东收益：<br>成为T6,分享两个T6,<br>即可享受10%平台股东加权分红。<br>💎分配收益<br>买卖的20%手续费，分配如下收益：<br>1，买卖50%手续费拉升ENT<br>2，20%平台整体运营<br>3，20%合伙人分红<br>4，10%平台股东分红<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/XqBIi" style="color: red;">https://mega-file.org/XqBIi</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
